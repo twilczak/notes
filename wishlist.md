@@ -7,7 +7,7 @@ Last Updated: 2023-12-17
 ### Clothing
 - [Moccasins (Size: 10, Color: Dark Russet / Dark Earth)](https://www.llbean.com/llb/shop/65637)
 - [Insulated Gloves (Size: Large, Color: Black or Grey)](https://www.amazon.com/dp/B005I33OVG?tag=20sbt-20&th=1&psc=1)
-- [Down Hoodie (Size: Medium, Color: Black](https://www.rei.com/product/208593/patagonia-down-sweater-hoodie-mens)
+- [Down Hoodie (Size: Medium, Color: Black)](https://www.rei.com/product/208593/patagonia-down-sweater-hoodie-mens)
 - Fleece Lined Pants
 
 ### Camping
