@@ -1,5 +1,5 @@
 ## Wishlist
-Last Updated: 2023-11-29
+Last Updated: 2023-12-17
 
 ### Miscellaneous
 - [Angel's Horn Vinyl Record Player](https://www.amazon.com/dp/B09VK9DLYR/)
